@@ -1,0 +1,6 @@
+# [lewiz 2 (edit)](https://dl.dropboxusercontent.com/scl/fi/p2n5aigu0ma97z2zu1v2i/lewiz-2-edit.osk?rlkey=kinew407z5f4iw14g0zm1rx59&dl=0)
+![image](https://i.imgur.com/fqN0viy.jpeg)
+# [lewiz 2](https://dl.dropboxusercontent.com/s/xj9jtufifromt4h/rice%20cooker.osk](https://dl.dropboxusercontent.com/scl/fi/526lj6n6mj5yrrth4srxu/lewiz-2.osk?rlkey=0snjd63fk4emscp572uan5e5p&dl=0))
+![image](https://i.imgur.com/ucJAwIi.jpg)
+# [lewiz 1](https://dl.dropboxusercontent.com/scl/fi/4ggojnkl1b7clp5qn9y4q/lewiz-1.osk?rlkey=tw38mtqgpub1wnrv25ngiusl5&dl=0)
+![image](https://i.imgur.com/HAvR4fp.jpg)
