@@ -1,4 +1,4 @@
-# [lewiz 3](https://www.dropbox.com/scl/fi/j5w01g5t7ywro0cfouwsi/lewiz-3.osk?rlkey=8va9p5q7kriqucik4y51s6sjw&st=k0rrnil1&dl=0)
+# [lewiz 3](https://www.dropbox.com/scl/fi/j5w01g5t7ywro0cfouwsi/lewiz-3.osk?rlkey=8va9p5q7kriqucik4y51s6sjw&st=k0rrnil1&dl=1)
 ![image](https://i.imgur.com/HB3TM8G.jpeg)
 # [lewiz 2 (edit)](https://www.dropbox.com/scl/fi/hap2pe24jb6afvpts7r9t/lewiz-2-edit.osk?rlkey=umlsoxk7ggwbnsa6evjtoemkr&st=bwl8hplf&dl=1)
 ![image](https://i.imgur.com/xAxlR9E.jpeg)
